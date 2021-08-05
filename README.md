@@ -1,1 +1,0 @@
-# SABIC_AR_1ooyssb
